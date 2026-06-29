@@ -1,4 +1,4 @@
-# 
+# custom escape waves for lucky blocks Script is the best escape waves for lucky blocks Script, featuring speed and silent aim. Safe and powerful for
 
 
 
